@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Saeed-T
+- 👀 I’m interested in Data Science
+- 🌱 I’m currently learning how to use R
+- 💞️ I’m looking to collaborate on everything?
+- 📫 How to reach me? Well come to Sharjah!
